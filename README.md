@@ -29,3 +29,4 @@ Welcome Patrice's profile !
   
   -Les mangas
   
+<img src=https://pa1.narvii.com/6369/cfe769f1717786c8f8a46bd8d43e313ccca84b03_hq.gif>
