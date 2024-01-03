@@ -7,11 +7,7 @@ Welcome Patrice's profile !
 </h4>
 
   -Obtention du bac STMG GF en 2018
-  
-  -Vendeur début 2019
-  
-  -Cuisinier fin 2019  
-  
+
   -Serveur début 2020 
   
   -Assistant comptable fin 2020
